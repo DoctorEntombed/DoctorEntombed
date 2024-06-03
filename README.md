@@ -1,10 +1,16 @@
 number one sublime listener and suguru geto defender
 -
 
+![image](https://github.com/DoctorEntombed/DoctorEntombed/assets/171541032/968eaa68-b334-4c27-997a-53dd01dcdae5)
+
+
 keyboard warrior 
 
 dni mentally sane people 
 int chronically online freaks
+
+![image](https://github.com/DoctorEntombed/DoctorEntombed/assets/171541032/16e1b0b1-c982-49bc-b7ab-6117ec44fa20)
+
 
 add me on discord if yuo want to be friendly. i don't bite :3c -- blackdog.png
 -
