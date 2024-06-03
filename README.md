@@ -1,4 +1,13 @@
-## Hi there 👋
+number one sublime listener and suguru geto defender
+-
+
+keyboard warrior 
+
+dni mentally sane people 
+int chronically online freaks
+
+add me on discord if yuo want to be friendly. i don't bite :3c -- blackdog.png
+-
 
 <!--
 **DoctorEntombed/DoctorEntombed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
