@@ -9,7 +9,8 @@ keyboard warrior
 dni mentally sane people 
 int chronically online freaks
 
-![image](https://github.com/DoctorEntombed/DoctorEntombed/assets/171541032/16e1b0b1-c982-49bc-b7ab-6117ec44fa20)
+![image](https://github.com/DoctorEntombed/DoctorEntombed/assets/171541032/a26951c7-619a-435e-9bfc-92612160379f)
+
 
 
 add me on discord if yuo want to be friendly. i don't bite :3c -- blackdog.png
