@@ -1,7 +1,6 @@
 number one sublime listener and suguru geto defender
 -
 
-https://files.fm/u/huxhky4bvx?k=19c11623
 
 ![image](https://github.com/DoctorEntombed/DoctorEntombed/assets/171541032/968eaa68-b334-4c27-997a-53dd01dcdae5)
 
